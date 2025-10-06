@@ -118,4 +118,4 @@ By using Virtus Athlete, you consent to this Privacy Policy and confirm that you
 
 ---
 
-*© 2025 Virtus Athlete. All rights reserved.*
+*© 2025 Hamza Jadouane. All rights reserved.*
